@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently working on BravoBall, an AI soccer app to coach players' technique<br>Founder of ConklinOfficial, 400k+ followers<br>UCLA alum<br>I love soccer, dogs, and Chipotle
+Currently working on BravoBall, an AI soccer app to coach players' technique<br>Founder of ConklinOfficial, 400k+ followers<br>UCLA Alumni<br>I love soccer, dogs, and Chipotle
 
 
 ## 🌐 Socials:
